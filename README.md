@@ -1,0 +1,5 @@
+- 👋 Olá, sou o usuario @D1masS2 mas pode me chamar de Dimas mesmo 
+- 👀 Estou interessado em codigos fonte procurando aprender mais e mais 
+- 🌱 Atualmente estou fazendo desenvolvimento  sistema 
+- 💞️ Procuro colaborar ajudar com tudo e todos 
+- 📫 dimasoliveira1406@gmail.com 
